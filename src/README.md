@@ -14,5 +14,4 @@ Through real-life examples and case studies, we will highlight the essential qua
 
 Join us on this transformative journey as we explore the art of confident leadership together. Let us embark on a path that will redefine the way we perceive leadership and empower us to create a positive impact on those we lead.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
