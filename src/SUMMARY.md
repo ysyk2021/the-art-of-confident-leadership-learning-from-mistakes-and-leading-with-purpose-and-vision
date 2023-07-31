@@ -30,7 +30,5 @@
 - [Chapter 10: Measuring and Evaluating Leadership Effectiveness](chapter-10.md)
   - [Defining metrics and KPIs](chapter-10-1.md)
   - [Tracking progress and evaluating impact](chapter-10-2.md)
-- [Chapter 11: Conclusion](chapter-11.md)
-  - [The future of confident leadership](chapter-11-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
