@@ -1,5 +1,3 @@
-Your Team or Organization
-==========================================================
 
 A strong and compelling vision is a cornerstone of confident leadership. It provides the guiding light that inspires and motivates both individuals and teams. In this chapter, we will explore the process of creating a vision for your team or organization, and how it can drive success and meaningful impact.
 

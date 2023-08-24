@@ -1,5 +1,3 @@
-Maintaining Confidence During Times of Crisis
-========================================================
 
 In "The Art of Confident Leadership: Learning from Mistakes and Leading with Purpose and Vision," leaders often face crises that test their confidence and resilience. This chapter explores strategies for maintaining confidence during times of crisis and leading effectively amidst uncertainty.
 

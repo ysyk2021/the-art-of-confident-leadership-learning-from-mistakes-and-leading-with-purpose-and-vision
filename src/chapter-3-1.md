@@ -1,5 +1,3 @@
-Identifying and Addressing Self-Doubt
-================================================
 
 In "The Art of Confident Leadership: Learning from Mistakes and Leading with Purpose and Vision," self-doubt is a common challenge that many leaders face. This chapter explores the importance of identifying and addressing self-doubt, and provides strategies for developing self-confidence and resilience.
 

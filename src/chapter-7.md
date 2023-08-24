@@ -1,5 +1,3 @@
-Chapter 7: Building and Managing Teams
-======================================
 
 Building and managing a high-performing team requires a combination of skills, mindset, and strategy. In this chapter, we will explore three key aspects of building and managing teams: hiring and recruiting top talent, delegating effectively and empowering your team, and managing conflict and difficult conversations.
 

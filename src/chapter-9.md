@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Challenges in Confident Leadership
-========================================================
 
 Confident leadership requires the ability to overcome challenges and obstacles. In this chapter, we will explore two key challenges that leaders often face: imposter syndrome and maintaining confidence during times of crisis.
 

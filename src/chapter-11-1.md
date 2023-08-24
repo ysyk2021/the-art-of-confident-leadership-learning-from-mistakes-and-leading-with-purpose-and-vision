@@ -1,5 +1,3 @@
-The Future of Confident Leadership
-==========================================================
 
 Confident leadership requires a combination of skills, mindset, and vision. As we look to the future, the role of leaders will continue to evolve and change. In this final chapter, we will explore the future of confident leadership.
 

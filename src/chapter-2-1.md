@@ -1,5 +1,3 @@
-Defining Confident Leadership
-======================================
 
 In this chapter, we delve into the concept of confident leadership and explore its significance in guiding individuals and organizations towards success. We will examine the key attributes, skills, and behaviors that define confident leaders and discuss how they inspire others to achieve greatness.
 

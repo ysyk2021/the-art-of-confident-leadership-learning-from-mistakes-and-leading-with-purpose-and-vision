@@ -1,5 +1,3 @@
-Active listening and Empathetic Communication
-========================================================
 
 In "The Art of Confident Leadership: Learning from Mistakes and Leading with Purpose and Vision," effective communication plays a central role in successful leadership. This chapter explores the importance of active listening and empathetic communication as essential skills for confident leaders.
 

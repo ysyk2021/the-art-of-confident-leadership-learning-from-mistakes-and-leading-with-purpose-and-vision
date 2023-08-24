@@ -1,5 +1,3 @@
-Chapter 8: Making Effective Decisions
-=====================================
 
 Making effective decisions is a crucial aspect of confident leadership. It involves analyzing data, weighing options, and making informed choices that align with your vision and strategy. In this chapter, we will explore how to make effective decisions through analyzing data, weighing options, and using techniques for making tough decisions.
 

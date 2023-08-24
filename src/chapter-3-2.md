@@ -1,5 +1,3 @@
-Techniques for Building Confidence
-=============================================
 
 Confidence is a fundamental trait of successful leaders. In this chapter, we will explore a range of techniques that can help you build and enhance your confidence as a leader. By practicing these techniques, you can overcome self-doubt, cultivate a strong sense of self-assurance, and become a more confident and effective leader.
 

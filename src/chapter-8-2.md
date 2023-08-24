@@ -1,5 +1,3 @@
-Techniques for Making Tough Decisions
-================================================
 
 In "The Art of Confident Leadership: Learning from Mistakes and Leading with Purpose and Vision," leaders often find themselves facing challenging decisions that require careful consideration and analysis. This chapter explores various techniques that can help leaders make tough decisions with confidence and clarity.
 

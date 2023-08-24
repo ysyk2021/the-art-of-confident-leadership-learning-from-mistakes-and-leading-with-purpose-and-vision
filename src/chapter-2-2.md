@@ -1,5 +1,3 @@
-Characteristics of confident leaders
-===============================================
 
 Confident leaders possess specific qualities and characteristics that set them apart and enable them to inspire and guide their teams towards success. In this chapter, we will explore the key traits and attributes that define confident leaders and contribute to their ability to lead with purpose and vision.
 

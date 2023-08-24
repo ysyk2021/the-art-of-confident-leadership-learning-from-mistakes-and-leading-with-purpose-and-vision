@@ -1,5 +1,3 @@
-Chapter 5: Leading with Purpose and Vision
-==========================================
 
 As a leader, it's essential to have a clear sense of purpose and vision for your team or organization. A strong vision can inspire and motivate your team, foster a sense of shared values and goals, and help you achieve greater success in achieving your objectives.
 

@@ -1,5 +1,3 @@
-Chapter 10: Measuring and Evaluating Leadership Effectiveness
-=============================================================
 
 Effective leadership requires not only strong vision and purpose, but also the ability to measure and evaluate the success of your leadership strategies. Defining metrics and key performance indicators (KPIs) is essential for evaluating the effectiveness of your leadership and making data-driven decisions.
 

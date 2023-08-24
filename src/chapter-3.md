@@ -1,5 +1,3 @@
-Chapter 3: Building Confidence as a Leader
-==========================================
 
 Confidence is a crucial trait for effective leadership. A confident leader inspires trust, motivates their team, and makes better decisions. However, confidence doesn't always come naturally, and it may need to be cultivated through deliberate practice. In this chapter, we will explore techniques for building confidence as a leader.
 

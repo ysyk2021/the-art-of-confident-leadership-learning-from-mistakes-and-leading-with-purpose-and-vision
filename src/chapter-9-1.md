@@ -1,5 +1,3 @@
-Imposter Syndrome and Other Obstacles
-================================================
 
 In "The Art of Confident Leadership: Learning from Mistakes and Leading with Purpose and Vision," leaders often encounter obstacles that can hinder their confidence and effectiveness. This chapter explores the phenomenon of imposter syndrome and other common challenges leaders face, and provides strategies for overcoming these obstacles.
 

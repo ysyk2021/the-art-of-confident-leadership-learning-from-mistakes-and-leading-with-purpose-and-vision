@@ -1,5 +1,3 @@
-Chapter 4: Learning from Mistakes
-=================================
 
 Learning from mistakes is an essential part of confident leadership. By embracing failure as a learning opportunity and avoiding common mistakes and pitfalls, you can improve your ability to lead effectively and achieve greater success with your team.
 

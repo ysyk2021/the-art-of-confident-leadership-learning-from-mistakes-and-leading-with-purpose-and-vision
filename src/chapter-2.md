@@ -1,5 +1,3 @@
-Chapter 2: What is Confident Leadership?
-========================================
 
 Confident leadership is the ability to inspire trust, motivate others, and make effective decisions. It involves having a clear understanding of your goals, vision, and strategy, as well as the ability to adapt and make tough decisions when necessary. In this chapter, we will define confident leadership and explore its key characteristics.
 

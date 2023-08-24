@@ -1,5 +1,3 @@
-Managing Conflict And Difficult Conversations
-========================================================
 
 In "The Art of Confident Leadership: Learning from Mistakes and Leading with Purpose and Vision," managing conflict and difficult conversations is a crucial skill for leaders. This chapter explores the importance of effectively managing conflict and provides strategies for navigating difficult conversations.
 

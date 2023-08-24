@@ -1,5 +1,3 @@
-Chapter 6: Communicating Effectively as a Leader
-================================================
 
 Effective communication is a critical component of confident leadership. As a leader, your ability to communicate clearly and effectively can impact how your team perceives you and how successful you are in achieving your goals. In this chapter, we will explore some key strategies for communicating effectively as a leader.
 

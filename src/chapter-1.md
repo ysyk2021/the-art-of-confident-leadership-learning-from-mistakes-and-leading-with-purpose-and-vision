@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Leadership is an essential aspect of life that impacts every individual and organization. A confident leader inspires trust, drives innovation, makes effective decisions, and builds resilience. In this chapter, we will explore why confident leadership matters in today's world.
 
@@ -28,5 +26,4 @@ Conclusion
 ----------
 
 In conclusion, confident leadership matters because it inspires trust, drives innovation, makes effective decisions, and builds resilience. Confident leaders have a significant impact on the success of individuals and organizations. By cultivating confident leadership skills, you can improve your ability to lead effectively and achieve greater success.
-
 
